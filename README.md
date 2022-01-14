@@ -1,2 +1,1 @@
-Sup!
-<!-- ![](https://i.imgur.com/MCdxfBH.png) -->
+![](https://i.imgur.com/Tjd9ckO.jpg)
